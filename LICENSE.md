@@ -1,4 +1,4 @@
-# 
+# احترافي Uniswap bot التداول سكريبتات for Mac OS | نهائي Uniswap bot التداول سكريبتات for PC Windows. Featuring واجهة برمجة التطبيقات للتبادل اللامركزي and مجموعات السيولة DEX — optimized for maximum performance.
 
 
 
